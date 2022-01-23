@@ -1,4 +1,4 @@
-### Hi there 👋
+### Better an empty purse than an empty head. 👋
 
 <!--
 **zzppyh/zzppyh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
